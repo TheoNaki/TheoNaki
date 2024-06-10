@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @TheoNaki
+- 
+- 🌱 I’m currently learning : 3d animations and level design.
+- 💞️ I’m looking to collaborate on : game projects
+- 
+- 📫 How to reach me : theologos10@hotmail.gr
+- 😄 Pronouns: he
